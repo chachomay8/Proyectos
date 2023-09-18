@@ -1,1 +1,1 @@
-proyectos que desarrolle a lo largo de mis estudios
+proyectos mas destacados que desarrolle a lo largo de mis estudios
